@@ -1,5 +1,3 @@
-### Hi there 👋
-
 - 👋 Hi, I’m Garda Ramadhito!
 - 🚌 I'm a Data Analyst Fellow at Dollaride.
 - 🎓 I’m a master's student in quantitative social science at Columbia University.
