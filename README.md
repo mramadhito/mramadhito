@@ -6,4 +6,4 @@
 📫 How to reach me: mr3536@columbia.edu, linkedin.com/in/garda-ramadhito <br>
 😄 Pronouns: He/Him/His <br>
 ⚡ Fun fact: I speak Arabic and I'd love a language partner! <br>
-خلينا منحكي بالعربي !
+خلينا منحكي بالعربي
